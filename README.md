@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Joseph
+- 👀 I’m interested in many things art and science
+- 🌱 I’m currently taking computer science at teh University of Saskatchewan
